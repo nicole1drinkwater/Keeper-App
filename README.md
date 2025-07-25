@@ -1,1 +1,1 @@
-Not everyone has the best memory. We all need help sometimes! The Keeper App is here to save the day and allow you to note down important details.
+Not everyone has the best memory. We all need help sometimes! The Keeper App is here to save the day and help you note down important details.
